@@ -1,1 +1,1 @@
-deep learn example
+deep learning case study example
