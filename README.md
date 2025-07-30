@@ -1,1 +1,1 @@
-deep learning case study example
+deep learning for ai case study 
