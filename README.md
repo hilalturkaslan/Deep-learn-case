@@ -1,1 +1,1 @@
-deep learning is a ai case study 
+deep learning is a for ai case study 
