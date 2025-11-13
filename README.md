@@ -1,1 +1,1 @@
-deep learning is a for ai sample case study do it
+deep learning is a for do it ai sample case study do it
