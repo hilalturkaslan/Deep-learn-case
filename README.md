@@ -1,1 +1,1 @@
-deep learning is a for do it ai sample case study do it
+deep learning is a for done make ai case study do it
