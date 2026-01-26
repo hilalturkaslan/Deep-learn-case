@@ -1,1 +1,1 @@
-deep learning is a for done make ai case study
+deep learning is a for done make ai inside case study
